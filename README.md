@@ -11,3 +11,5 @@
 - [〝 V Ξ Я T У И O O И 〞ˎˊ˗](https://discord.gg/XqGYWH4)
 - [🍥 Pika Development](https://discord.gg/axvcqFQf2m)
 - [Trigon](https://top.gg/bot/760785842519801858)
+
+![card](https://discord.c99.nl/widget/theme-3/269480080823025664.png)
